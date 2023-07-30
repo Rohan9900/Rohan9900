@@ -3,9 +3,8 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=rohan9900" alt="rohan9900" /></a> </p>
 
-- 🔭 I’m currently working on [Tanziva](http://tanziva.com/)
 
-- 🌱 I’m currently learning **Data Science**
+- 🌱 I’m currently learning **NEW**
 
 - 💬 Ask me about **MERN**
 
