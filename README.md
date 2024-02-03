@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **rohanbindal1149@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1djApUHu7HbiGsr20S3IxkmyMkc1LgM2y/view?usp=sharing](https://drive.google.com/file/d/1djApUHu7HbiGsr20S3IxkmyMkc1LgM2y/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1djApUHu7HbiGsr20S3IxkmyMkc1LgM2y/view?usp=sharing](https://drive.google.com/file/d/14FlBCG2Wi7NH3dOzbti7L2PdZN2kWABo/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
